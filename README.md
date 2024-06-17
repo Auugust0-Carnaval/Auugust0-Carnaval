@@ -1,4 +1,4 @@
-### Olá, eu sou Augusto Carnaval <3
+### Hi, i'm Augusto 😊 <3
 
 <div align="center">
   <a href="https://github.com/Auugust0-Carnaval">
